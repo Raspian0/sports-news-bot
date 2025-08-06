@@ -1,4 +1,4 @@
-© 2025 [Your Name]
+© 2025 
 
 This software is proprietary and confidential.
 
